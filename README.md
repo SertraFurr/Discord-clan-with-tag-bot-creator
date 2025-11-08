@@ -2,7 +2,7 @@
 
 - No need to buy goofy scammer, just use it in the background
 
-# Patched, will alert when enabled back, no generator work anymore, don't get scammed
+# USELESS ALL DISCORD SERVER HAVE ACCESS TO THIS
 
 ## Overview
 
